@@ -46,4 +46,7 @@ Cara membuatnya:
  	<li>Suwir2 ayam. Tata dalam mangkok mulai dari nasi putih, soon, kecambah, ayam suwir, seledri dan bawang goreng. Tambahkan kuah soto. Hmmmm seger banget sotonya... Selamat mencoba!</li>
 </ol>
 
-Nah itu dia resep yang bisa kami sampaikan untuk entry kali ini jika masih penasaran dengan yang lain bisa menuju <a href="http://resepnusa.net">resep masakan indonesia</a>
+Nah itu dia resep yang bisa kami sampaikan untuk entry kali ini jika masih penasaran dengan yang lain bisa menuju <a href="https://masakanmudah.info">resep masakan indonesia</a>
+
+<a href="https://masakanpemula.info">https://masakanpemula.info</a>
+<a href="https://masakansedap.info">https://masakansedap.info</a>
